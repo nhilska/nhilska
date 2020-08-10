@@ -1,5 +1,3 @@
-### Hi, I'm Nicklas Hilska! 
-
 - 🔭 I’m currently working on what to study next.
 - 🌱 I’m currently learning alot of new and interesting stuff.
 - 👯 I’m looking to collaborate on wherever I can learn new things.
